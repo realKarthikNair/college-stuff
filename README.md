@@ -1,2 +1,2 @@
 # college-stuff
-Shit that university makes me do 
+PRACTICAL FILES' DUMP FOR ANYONE THAT NEEDS HELP
