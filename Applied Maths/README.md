@@ -1,1 +1,1 @@
-### Files here would probably be donated by _______ . Thank them for the same in possible means.
+### Files here is donated by _______ . Thank them for the same in possible means.
